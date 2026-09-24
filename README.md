@@ -7,7 +7,7 @@ This is my public creator profile.
 
 ### About Me
 
-Aspiring Researcher. Explorer. Continuous Learner.
+I do research and try to have fun along the way.
 
 **Artificial Intelligence (Informatics) @ University of Edinburgh '29.**
 
